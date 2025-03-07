@@ -16,5 +16,7 @@ You can click the Preview link to take a look at your changes.
 Connect with Me
 
 📩 Email: [pavanidandolu4@gmail.com]
+
 💼 LinkedIn: [https://www.linkedin.com/in/pavani-pavani-0a933a286/]
+
 📂GitHub: [https://github.com/pavani-panu]
